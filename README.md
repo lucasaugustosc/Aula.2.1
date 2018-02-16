@@ -1,3 +1,4 @@
 Kit Harington 
-Christopher Nolan
+emylia clarke
 jhonny depp
+ator4
